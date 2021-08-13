@@ -1,0 +1,2 @@
+# ggi
+Gulzar Group of Institutes is one of Leading Centre for Higher Education in North India.We Focus on Overall Development of Students enabling them to be Responsible Global Citizens. We Believe in Providing 21st Century World that is Practical, Joyful and Addresses the Need of Industry.Gulzar Group of Institutes (GGI) is a Leading Best Private College in Ludhiana, Punjab, India offers courses like Btech, Bcom, BCA, MBA, Diploma, HMCT, Bsc Agriculture, Bsc Fashion Designing, Bsc Computer Science, Bsc Medical Lab Sciences, Bsc Journalism and Mass Communication.
